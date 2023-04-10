@@ -1,0 +1,1 @@
+# Plastered-defect-type-classification-AI-competition
